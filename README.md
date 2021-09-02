@@ -11,8 +11,8 @@
 ![image](https://user-images.githubusercontent.com/89995888/131889598-21704e7d-af01-4a3c-9bf8-46d3cce605f0.png)
 ## How much does Dutchy's cost?
 ![image](https://user-images.githubusercontent.com/89995888/131891890-8b9f0199-8ebf-42d9-80e9-0873798a1bf8.png)
-## Is there any seasonal flavors? 
-Caramel Pumpkin Brulée breve and Cinnabear Rebel. The Caramel Pumpkin Brulée flavor is a limited-edition seasonal drink that can be enjoyed as a breve, a cold brew, or a Dutch Freeze. This is just for fall, there are seasonal drinks all year long
+## Is there any seasonal or secret flavors?
+Caramel Pumpkin Brulée breve and Cinnabear Rebel. The Caramel Pumpkin Brulée flavor is a limited-edition seasonal drink that can be enjoyed as a breve, a cold brew, or a Dutch Freeze. This is just for fall, there are seasonal drinks all year long. There are secret flavors as well: Dutch Canyon, White Coffee Cookie, The Nutty Irishman, Double Rainbow, Horchata Chai, Black Forest Freeze, Raspberry Truffle Mocha, Palm Beach Lemonade, and MORE.
 
 
 
