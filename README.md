@@ -4,7 +4,7 @@
 *Macchiato*
 *Frappe*
 *Mochas*
-*Normal coffee*
+*Hot, Iced, or even Blended coffee*
 *AND MORE*
 
 ##Want to see some coffee? Click the link
