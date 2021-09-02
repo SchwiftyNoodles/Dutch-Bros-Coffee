@@ -1,6 +1,7 @@
 # Dutch-Bros-Coffee
 ## OMG it is so *GOOD*
 
+Yo kyle, why is the text not starting on a new line? is it because of the fatty image?
 I AM HERE LOSER (this is Kyle btw)
 go away
 ##Want to see some coffee? Click the link
