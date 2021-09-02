@@ -1,9 +1,3 @@
-# Table of Contents
-[Drinks](#Dutch-Bros-Coffee)
-[Pricing]()
-[Store Location]()
-[Customer Satisfaction]()
-
 
 # Dutch-Bros-Coffee
 ## OMG it is so *GOOD*
@@ -24,4 +18,8 @@ Caramel Pumpkin Brulée breve and Cinnabear Rebel. The Caramel Pumpkin Brulée f
 Dutch bros is open 24/7 so you can get your caffiene game on at any point!
 ### Customer satisfaction?
 For the second consecutive year, Dutch Bros. Coffee has been ranked by J.D. Power and Associates as highest in customer satisfaction in its Specialty Coffee Retailer Satisfaction Report.Dutch Bros. received 824 points out of a possible 1000, with runners-up including, from highest to lowest scoring: Seattle’s Best Coffee, Starbucks Coffee, Caribou Coffee, The Coffee Bean & Tea Leaf, Tully’s Coffee and Peet’s Coffee & Tea.
-
+# Table of Contents
+[Drinks](#Dutch-Bros-Coffee)
+[Pricing]()
+[Store Location]()
+[Customer Satisfaction]()
