@@ -13,3 +13,10 @@
 ![image](https://user-images.githubusercontent.com/89995888/131891890-8b9f0199-8ebf-42d9-80e9-0873798a1bf8.png)
 ## Is there any seasonal flavors? 
 Caramel Pumpkin Brulée breve and Cinnabear Rebel. The Caramel Pumpkin Brulée flavor is a limited-edition seasonal drink that can be enjoyed as a breve, a cold brew, or a Dutch Freeze. This is just for fall, there are seasonal drinks all year long
+
+
+
+
+## Customer Satisfaction??
+For the second consecutive year, Dutch Bros. Coffee has been ranked by J.D. Power and Associates as highest in customer satisfaction in its Specialty Coffee Retailer Satisfaction Report.
+Dutch Bros. received 824 points out of a possible 1000, with runners-up including, from highest to lowest scoring: Seattle’s Best Coffee, Starbucks Coffee, Caribou Coffee, The Coffee Bean & Tea Leaf, Tully’s Coffee and Peet’s Coffee & Tea.
