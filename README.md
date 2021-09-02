@@ -1,8 +1,8 @@
 # Table of Contents
-[Drinks](#Dutch-Bros-Coffee)
-[Pricing]()
-[Store Location]()
-[Customer Satisfaction]()
+[Drinks](#Dutch-Bros-Coffee)  
+[Pricing]()  
+[Store Location]()  
+[Customer Satisfaction]()  
 
 
 # Dutch-Bros-Coffee
